@@ -1,4 +1,4 @@
-# 💫 About Me
+# 💫 About Me,
 Meet Dinuk Tharindu Dissanayake, a go-getter from the charming town of Kandy, Sri Lanka. Armed with,
 
 🎓 BSc in Quantity Surveying at University of Wolverhampton </br></br>
