@@ -1,5 +1,5 @@
 # 💫 About Me.
-Meet Dinuk Tharindu Dissanayake, a go-getter from the charming town of Kandy, Sri Lanka. Armed with,
+Meet Dinuk Tharindu Dissanayake,a go-getter from the charming town of Kandy, Sri Lanka. Armed with,
 
 🎓 BSc in Quantity Surveying at University of Wolverhampton </br></br>
 🎓 MEP Quantity Surveying at ACTA  </br></br>
