@@ -2,7 +2,7 @@
 Meet Dinuk Tharindu Dissanayake,a go-getter from the charming town of Kandy, Sri Lanka. Armed with,
 
 🎓 BSc in Quantity Surveying at University of Wolverhampton </br></br>
-🎓 MEP Quantity Surveying at ACTA  </br></br>
+🎓 MEP Quantity Surveying at ACTA </br></br>
 🎓 Studied At Kandy Model School & Dharmaraja College  </br></br>
 🌱 Currently pursuing: Software Engineering at ICET Institute, Panadura.  </br></br></br>
 
