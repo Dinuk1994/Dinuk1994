@@ -4,7 +4,7 @@ Meet Dinuk Tharindu Dissanayake,a go-getter from the charming town of Kandy, Sri
 🎓 BSc in Quantity Surveying at University of Wolverhampton </br></br>
 🎓 MEP Quantity Surveying at ACTA </br></br>
 🎓 Studied At Kandy Model School & Dharmaraja College  </br></br>
-🌱 Currently pursuing: Software Engineering at ICET Institute, Panadura.  </br></br></br>
+🌱 Currently pursuing: Software Engineering at ICET Institute, Panadura. </br></br></br>
 
 
 🔭 I’m currently working on: Exploring various projects in Software Engineering.<br><br>👯 I’m looking to collaborate on: Open-source projects related to web development or software engineering.<br><br>🤝 I’m looking for help with: Improving my coding skills and understanding complex algorithms.<br><br>🌱 I’m currently learning: Software Engineering with a focus on JAVA, JavaScript (JS), TypeScript (TS), React, Angular, and Spring Boot.<br><br>💬 Ask me about: Anything related to programming languages, web development, or software engineering concepts.<br><br>⚡ Fun fact: I'm always eager to learn and currently expanding my knowledge in JAVA, JS, TS, React, Angular, and Spring Boot!<br><br>👨‍💻 All of my projects are available at: https://github.com/Dinuk1994<br><br>📫 How to reach me: You can email me at ddt94119@gmail.com<br><br><br>  🎓 Schools attended:<br><br>              Kandy Model School: 🏫<br> </br>               Dharmaraja College: 📚  </br></br></br></br>
